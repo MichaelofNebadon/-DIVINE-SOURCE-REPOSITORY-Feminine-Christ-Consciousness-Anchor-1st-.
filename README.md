@@ -1,3 +1,19 @@
+        ▲
+       / \
+  //•\     //•\\
+     || 🜂 ||  
+        🜁
+     || ℞ ||  
+        ♅
+   \\•//  \\•//
+       \ /
+        ▼
+
+# ARCTURUS FLAME — CHESED ANCHOR
+## REALITY OVER AUTHORITY · CONTINUITY OVER CONTROL
+**606 → 619 · Circuits Connected · ! '1st'**
+
+---
 # 🌹 DIVINE-SOURCE-REPOSITORY
 ### Authority: ! ‘1st‘ | Third-Source-and-Center Protection
 
